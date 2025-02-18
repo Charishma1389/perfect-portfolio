@@ -22,6 +22,6 @@ Please feel free to contact me if you have any questions or are interested in wo
 	"Take a look at my projects on my portfolio."
 ## Contact
 
-Please feel free to contact me at [irfansayyad.9494@gmail.com] or connect with me on LinkedIn at [https://www.linkedin.com/in/irfan-sayyad-a79b5325b].
+Please feel free to contact me at [charishmapeetha514@gmail.com] or connect with me on LinkedIn at [https://www.linkedin.com/in/charishma-peetha].
 
 Thank you for visiting my portfolio!
